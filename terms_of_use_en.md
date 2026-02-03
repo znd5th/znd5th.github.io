@@ -35,7 +35,7 @@ These Terms of Use may be updated if necessary. The current version is available
 
 ---
 
-© 2026 [Developer name]
+© 2026 Reijo J.]
 Private individual
 
 ---
